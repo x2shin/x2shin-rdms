@@ -3,7 +3,7 @@
 Seorang pengembang yang percaya bahwa kode yang baik adalah kode yang menyelesaikan masalah nyata. 
 
 - 💻 Selalu percaya proses
-- ⛰️ Di waktu luang, saya suka berenang atau merawat koleksi denim saya.
+- 🏊‍♂️👖 Di waktu luang, saya suka berenang atau merawat koleksi denim saya.
 - 📫 Hubungi saya melalui: [radimasf7@gmail.com]
 
 ### 🛠️ Skills & Tools
